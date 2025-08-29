@@ -1,2 +1,0 @@
-# negros-test
-niggaaaa
